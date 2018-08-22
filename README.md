@@ -30,6 +30,7 @@ https://www.aliexpress.com/item/2pcs-RM1605-ballnuts-suitable-for-TBI-brand-scre
 SFU2004 ... 18.50 usd   
 4x													1628,-
 
-
-
+https://www.aliexpress.com/item/NEW-SFU2005-ballscrew-support-1pcs-BK15-and-1pcs-BF15-for-screw-20mm-2005-SFU2004-SFU2010-ballscrew/32765282256.html
+BK15 and BF15 .. 22.32 usd
+4x													1964,-
 
