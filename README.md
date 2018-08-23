@@ -31,6 +31,7 @@ SFU2004 ... 18.50 usd
 4x													1628,-
 
 https://www.aliexpress.com/item/NEW-SFU2005-ballscrew-support-1pcs-BK15-and-1pcs-BF15-for-screw-20mm-2005-SFU2004-SFU2010-ballscrew/32765282256.html
+https://www.aliexpress.com/item/NEW-BK10-BF10-BK12-BF12-BK15-BF15-FK10-FF10-FK12-FF12-FK15-FF15-EK10-EF10-EK12/32911499114.html
 BK15 and BF15 .. 22.32 usd
 4x													1964,-
 
